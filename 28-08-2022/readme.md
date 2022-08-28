@@ -27,10 +27,30 @@ Stating arguments against
 - Nothing is accomplished when
 - It has a negative if
 
+
 Vocabulary:
 
 - fuel -> increment, contributes to
--
+- reward
+- punish
+
+### Class
+
+- Lenient / less agressive.
+
+play truant: escape/skip 
+backlash: bad results.
+parenting contracts.
+
+
+Luksa/teacher. 
+
+
+my favorite word: The best way forward is.
+
+Give one example.
+disagree
+
 
 
 Source:
