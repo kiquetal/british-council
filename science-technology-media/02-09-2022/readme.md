@@ -29,6 +29,44 @@ Choose the most appropiate
 6- What could be more [ _ _ _ ] than having your air conditioned car parked at your door in hot weather?
 
 
+### Class
+
+ If a meet new friends
+ Public speaking.
+ Proffesional meeting.
+ 
+ Daily, i dont have ps
+ I did prefere n
+much easier
+how on earth 
+safe/confortable
+progressively
+efficiency
+beneficiall
+comfortably
+
+### Task
+
+Brief presentation for a specific topic.
+
+Advantages and Disadvantages
+
+
+### After class
+
+Vocabulary
+
+- incredibly
+- tremendously
+- products
+- safe
+- comfortable
+- progressively
+- innovations
+- efficiency
+- beneficial
+
+
 
 source: https://www.notion.so/cresterida/Great-achievements-655ae7cf40544f9c9634fe5e86ddba88
 
@@ -43,4 +81,3 @@ source: https://www.notion.so/cresterida/Great-achievements-655ae7cf40544f9c9634
 
 
 
-source: https://www.notion.so/cresterida/Great-achievements-655ae7cf40544f9c9634fe5e86ddba88
