@@ -3,6 +3,7 @@
 ### Before Class
 
 - About electrification
+
 From listening:
 - incredibly
 - definitely

@@ -55,7 +55,7 @@ disagree
 
 ### After class
 
-It is a major reson for
+It is a major reason for
 This means that
 As a result of
 For examples/such as
