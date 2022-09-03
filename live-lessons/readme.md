@@ -1,3 +1,3 @@
 
 
-- [Suffixes: how to form adjectives](./form-adejectives.md)
+- [Suffixes: how to form adjectives](./form-adjectives.md)
