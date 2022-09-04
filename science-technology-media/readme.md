@@ -4,7 +4,7 @@
 ### Lessons
 
  - [Is TV bad for us?](./30-08-2022/readme.md)
- - Sciende today
+ - [Science today](./04-09-2022/readme.md)
  - [Great achvievements](./02-09-2022/readme.md)
  - The Impact of technology
  - Discussing a new item
