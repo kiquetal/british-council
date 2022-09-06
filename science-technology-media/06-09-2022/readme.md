@@ -57,16 +57,13 @@ is the difficulty to identity people who are harming another people.
  
 
 
+### Feedback
 
+the internet, the car
 
-### Vocabulary
-
-- Alexandria Egypt.
-- Italy Florence.
-- Spain small midieval towns.
 
 
 
 ###
 
-Source:
+Source: https://www.notion.so/cresterida/The-Impact-of-technology-ed22386368d9485ba9b4ccc293bd430a
