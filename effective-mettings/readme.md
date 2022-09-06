@@ -5,7 +5,7 @@
 
 - Diplomacy
 
-- Talking about talents and skills
+- [Talking about talents and skills](./talents-and-skill.md)
 
 - [Dealing with awkward situations](./27-08-2022/readme.md)
 
