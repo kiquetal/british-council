@@ -43,6 +43,37 @@ to enrol
 
 
 
+- Teacher: Kate
+
+- Trying to improve my English
+- Keep in touch with the world.
+- Likewise => agree => same opinions.
+- Sometimes things just pop up onmy page. (appears suddenly)
+
+- Task
+
+1njxbBTOj57M6
+
+crime:
+
+Celebrity : Bansky
+
+underground resistance:
+such as  graffitti..
+
+-Bansky
+
+- Photocopy in the future.
+
+- 
+
+### Vocabulary
+
+THe article I've just read is about
+What happened is that
+According to the story
+Apparently
+The main issue this raises is
 
 
 ### Source:https://www.notion.so/cresterida/Discussing-a-news-item-8574913b68644bdc9797bbca8e3188a5
