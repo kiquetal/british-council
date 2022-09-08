@@ -70,9 +70,13 @@ such as  graffitti..
 ### Vocabulary
 
 THe article I've just read is about
+
 What happened is that
+
 According to the story
+
 Apparently
+
 The main issue this raises is
 
 
