@@ -1,4 +1,5 @@
-### Class: A bad restaurant experience
 ### Theme: Writing to persuade
 
-- [Writing to persuade](./10-09-2022/readme.md)
+### Lessons
+
+- [Writing to persuade](./10-09-2022/readme.md//)
