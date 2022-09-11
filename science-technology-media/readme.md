@@ -8,6 +8,6 @@
  - [Great achvievements](./02-09-2022/readme.md)
  - [The Impact of technology](./06-09-2022/readme.md)
  - [Discussing a news item](./08-09-2022/readme.md)
- - In the news
+ - [In the news](./11-09-2022/readme.md')
 
 
