@@ -3,3 +3,4 @@
 ### Classes
 
 - [Dealing with problems](./13-09-2022/readme.md) 
+- [Presenting a product](./18-09-2022/readme.md)
