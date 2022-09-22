@@ -11,4 +11,4 @@
 
 - [Behaviour at school](./28-08-2022/readme.md)
 
-- Kamana Island
+- [Kamana Island](./22-09-2022/readme.md)
